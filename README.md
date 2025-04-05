@@ -28,5 +28,3 @@ ScoutX bridges the gap between **aspiring athletes** and **scouting opportunitie
 - 📣 **Sports Enthusiasts** – To follow rising stars and engage with the community
 
 ---
-
-If you want, I can give you a short tagline or elevator pitch for ScoutX too!
